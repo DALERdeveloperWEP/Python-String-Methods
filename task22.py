@@ -1,0 +1,1 @@
+#shart tushunarsizligi sabab tashlab ketildi
